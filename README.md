@@ -1,2 +1,1 @@
-# newbie.pie
-# new here
+New here :)
